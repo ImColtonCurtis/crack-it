@@ -17,3 +17,9 @@ Contact Information
 For any questions, issues, or feedback related to crack-it, please contact us at nonothinggames@gmail.com. We appreciate your support and are committed to continually improving the game to provide the best possible gaming experience.
 
 Download Crack-It now and put your code-cracking skills to the test! Have fun and good luck!
+
+Get The Game
+
+App Store: https://apps.apple.com/us/app/crack-it/id1659483869
+
+Google Play Store: https://play.google.com/store/apps/details?id=com.nonothing.crackit
